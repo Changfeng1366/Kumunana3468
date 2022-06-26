@@ -1,3 +1,3 @@
-Help me to translate!
-Please!!!!!!
-Twitter: Kumunana3468
+Hello I'm Polaus
+Is a Minecraft Gamer
+I like playing Minecraft with mods
